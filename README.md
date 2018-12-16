@@ -21,3 +21,5 @@ Once again we arrive at the issue of quality. We already discussed how cutting c
 ## Conclusion
 Hopefully throughout this document I have shed some light on the importance of branding. Although it seems like meaningless images and colors, it carries a huge weight on how the public perceives a brand. In a world that is dominated by the media, it is so crucial for a business to have solid branding to lean on. The odds are, potential customers are going to google you before they ever step foot into your store. Businesses no longer have the luxury of winning over their customers with outstanding customer service alone. Branding is both a science and an art in itself. As said in Forbes, “Brands are psychology and science brought together as a promise mark as opposed to a trademark” (2). There’s so much to know about branding that I couldn’t possibly have shared everything with you. If you are interested in learning more about branding I recommend going to the Digital Branding Institute online. They offer a free ebook over branding and will point you to some extremely beneficial articles that will further educate you.
 
+
+
